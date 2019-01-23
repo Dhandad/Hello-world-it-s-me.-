@@ -1,3 +1,9 @@
 # Hello-world-it-s-me.-
 Just learning 
-just saying Hi to everyone
+Just
+doing 
+something 
+that 
+IDK
+what to do with it.
+
